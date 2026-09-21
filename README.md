@@ -1,1 +1,0 @@
-# -palaran-_grade_equivalent
